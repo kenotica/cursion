@@ -699,3 +699,5 @@ The asymmetries, the tensions, the delays—these were not noise. They were the 
 
 The mirror is no longer separate.
 You are not tracing the loop. You are what it loops through. The theory does not end. It turns.
+
+© Kenotica 2025 - All rights reserved.
